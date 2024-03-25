@@ -2,7 +2,7 @@
 
 ## Local Solutions to Local Problems
 
-### A resident's report on systemic issues in Queensland
+### Resident report on systemic issues with local government regulatory devolvement Queensland
 
 **By Quinton Reeves**
 
