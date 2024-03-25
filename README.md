@@ -4,7 +4,7 @@
 
 ### A resident's report on systemic issues in Queensland
 
-By Quinton Reeves
+**By Quinton Reeves**
 
 Published March 2024
 
